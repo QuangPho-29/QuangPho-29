@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @QuangPho-29, You can call me Henry XD
 - 👀 I’m interested in Business Analystic and Web Developer
 - 🌱 I’m currently learning How to write FS Documentation
-- 📫 Contact me: quangpho3007@gmail.com
+- 📫 Contact me: Pho.TQ2903@gmail.com
 - 😄 Pronouns: Pho`
 - ⚡ Fun fact: I've just found my meaning of life since 2024
 
