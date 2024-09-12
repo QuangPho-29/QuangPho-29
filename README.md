@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @QuangPho-29
-- 👀 I’m interested in Business Analystic and Design
+- 👋 Hi, I’m @QuangPho-29, You can call me Henry XD
+- 👀 I’m interested in Business Analystic and Web Developer
 - 🌱 I’m currently learning How to write FS Documentation
 - 📫 Contact me: quangpho3007@gmail.com
 - 😄 Pronouns: Pho`
